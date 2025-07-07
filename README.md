@@ -14,4 +14,4 @@
 日本AV免费可通过合法平台免费观看。
 选择安全、高清的在线视频平台，定期更新资源，确保隐私保护和流畅播放。避免非法站点，确保观影体验和个人信息安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td11 ）</span>
